@@ -1,0 +1,1 @@
+https://mylynx.pages.dev/
