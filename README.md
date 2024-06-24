@@ -1,1 +1,1 @@
-https://mylynx.pages.dev/
+https://mylynx.pages.dev
